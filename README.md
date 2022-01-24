@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MrVersatile007 aka "TARUN"
 - 👀 I’m interested in "EVERYTHING"
 - 🌱 I’m currently learning "MACHINE LEARNING"
-- 💞️ I’m looking to collaborate on "DATA SCIENCE"
+- 💞️ I’m looking to collaborate with "........."
 - 📫 How to reach me? just write to iamtarun.10@gmail.com 
 
 <!---
